@@ -6,6 +6,8 @@ Debussy - 2 Arabesques: No. 1, Andantino con moto
 
 Debussy - La soiree dans Grenade
 
+Debussy - Reverie
+
 Chopin - Nocturnes, Op. 9: No. 2 in E-flat major 
 
 Faulkner - Daydreaming 
