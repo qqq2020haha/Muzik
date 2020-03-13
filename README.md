@@ -4,6 +4,8 @@ Debussy - Suite Bergamasque, L. 75: III. Clair de Lune
 
 Debussy - 2 Arabesques: No. 1, Andantino con moto
 
+Debussy - La soiree dans Grenade
+
 Chopin - Nocturnes, Op. 9: No. 2 in E-flat major 
 
 Faulkner - Daydreaming 
