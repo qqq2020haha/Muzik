@@ -54,9 +54,9 @@ Chopin - Nocturnes, Op. 9: No. 2 in E-flat major
 
 Chopin - Douze Etudes Op. 25: No. 1 "Aeolian Harp" 
 
-Chopin - Nocturne in B-flat minor Op. 9 No. 
+Chopin - Nocturne in B-flat minor Op. 9 No. (Luv)
 
-Nocturne in F# major Op. 15 No. 2
+Chopin - Nocturne in F# major Op. 15 No. 2
 
 -------------------------------------------------------------------------
 
