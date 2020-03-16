@@ -8,7 +8,7 @@ Mendelssohn: Violin Concerto in E minor, Op. 64 - 2. Andante for 7 min
 
 Brahms: Violin Concerto in D major, Op. 77 - 1. Allegro non troppo for 23 min
 
-Brahms: Violin Concerto in D major, Op. 77 - 2. Adagio for 10 min
+Brahms: Violin Concerto in D major, Op. 77 - 2. Adagio for 10 min (Luv)
 
 Brahms: Violin Concerto in D major, Op. 77 - 3. Allegro giocoso, ma non troppo vivace - Poco piu presto for 9 min
 
@@ -20,7 +20,7 @@ Mozart - Piano Sonata No. 9 in D major, K. 311 - 2. Andantino con espressione
 
 -------------------------------------------------------------------------
 
-Debussy - Suite Bergamasque, L. 75: III. Clair de Lune
+Debussy - Suite Bergamasque, L. 75: III. Clair de Lune (Luv)
 
 Debussy - 2 Arabesques: No. 1, Andantino con moto
 
@@ -38,7 +38,7 @@ Debussy, Images , L. 110 - No. 1 Reflections in the Water
 
 Chopin - Nocturnes, Op. 9: No. 2 in E-flat major 
 
-Faulkner - Daydreaming 
+Faulkner - Daydreaming (Luv)
 
 Yiruma - River Flows in You 
 
