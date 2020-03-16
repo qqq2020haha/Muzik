@@ -52,6 +52,10 @@ Debussy, Images , L. 110 - No. 1 Reflections in the Water
 
 Chopin - Nocturnes, Op. 9: No. 2 in E-flat major 
 
+Chopin - Douze Etudes Op. 25: No. 1 "Aeolian Harp" 
+
+-------------------------------------------------------------------------
+
 Faulkner - Daydreaming (Luv)
 
 Yiruma - River Flows in You 
