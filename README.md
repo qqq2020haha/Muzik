@@ -6,6 +6,8 @@ Bach: Harpsichord Invention No. 1 in C major, BWV 772
 
 Bach: Orchestral Suite No. 2 in B Minor, BWV 1067: Badinerie
 
+Bach: Brandenburg Concerto No. 3 in G major, BWV 1048 Allegro
+
 Bach:  Orchestral Suite No. 3 in D Major, BWV 1068: Air on the G String
 
 Bach: Cantata BWV 147: Jesu, Joy of Man's Desiring
