@@ -6,6 +6,8 @@ Brahms: Violin Concerto in D major, Op. 77 - 1. Allegro non troppo for 23 min
 
 Brahms: Violin Concerto in D major, Op. 77 - 2. Adagio for 10 min
 
+Brahms: Violin Concerto in D major, Op. 77 - 3. Allegro giocoso, ma non troppo vivace - Poco piu presto for 9 min
+
 -------------------------------------------------------------------------
 
 Mozart - Piano Sonata No. 5 in G major, K. 283 - 2. Andante
