@@ -2,7 +2,9 @@
 
 -------------------------------------------------------------------------
 
-Brahms: Violin Concerto in D major, Op. 77 - 1. Allegro non troppo for 23min
+Brahms: Violin Concerto in D major, Op. 77 - 1. Allegro non troppo for 23 min
+
+Brahms: Violin Concerto in D major, Op. 77 - 2. Adagio for 10 min
 
 -------------------------------------------------------------------------
 
