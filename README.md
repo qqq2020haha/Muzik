@@ -50,13 +50,15 @@ Debussy, Images , L. 110 - No. 1 Reflections in the Water
 
 -------------------------------------------------------------------------
 
+Chopin - Nocturne in D-flat major Op. 27 No. 2 (Luv)
+
 Chopin - Nocturne Op. posth. No. 20 in C sharp Minor (Luv)
+
+Chopin - Nocturne in B-flat minor Op. 9 No. (Luv)
 
 Chopin - Nocturnes, Op. 9: No. 2 in E-flat major 
 
 Chopin - Douze Etudes Op. 25: No. 1 "Aeolian Harp" 
-
-Chopin - Nocturne in B-flat minor Op. 9 No. (Luv)
 
 Chopin - Nocturne in F# major Op. 15 No. 2
 
