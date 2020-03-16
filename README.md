@@ -2,6 +2,8 @@
 
 Bach:  Orchestral Suite No. 3 in D Major, BWV 1068: Air on the G String
 
+Bach: Cantata BWV 147: Jesu, Joy of Man's Desiring
+
 -------------------------------------------------------------------------
 
 Mendelssohn: Violin Concerto in E minor, Op. 64 - 2. Andante for 7 min
