@@ -18,6 +18,8 @@ Mozart - Piano Sonata No. 5 in G major, K. 283 - 2. Andante
 
 Mozart - Piano Sonata No. 9 in D major, K. 311 - 2. Andantino con espressione
 
+-------------------------------------------------------------------------
+
 Debussy - Suite Bergamasque, L. 75: III. Clair de Lune
 
 Debussy - 2 Arabesques: No. 1, Andantino con moto
@@ -32,11 +34,15 @@ Debussy - Images , L. 111 - No. 2 And the moon descends on the temple
 
 Debussy, Images , L. 110 - No. 1 Reflections in the Water
 
+-------------------------------------------------------------------------
+
 Chopin - Nocturnes, Op. 9: No. 2 in E-flat major 
 
 Faulkner - Daydreaming 
 
 Yiruma - River Flows in You 
+
+-------------------------------------------------------------------------
 
 Tchaikovsky - The Seasons, Op. 37a: No. 5, May. White Nights 
 
