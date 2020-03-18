@@ -108,7 +108,7 @@ Galuppi - Piano Sonata No. 5 in C Major: I. Andante
 
 Erik Satie - Gnossienne nº 1
 
-Erik Satie - Gnosienne nº 3
+Erik Satie - Gnosienne nº 3 (LuvPlus)
 
 Erik Satie - Six gnossiennes: Gnosienne 5, modéré
 
