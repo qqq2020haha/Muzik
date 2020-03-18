@@ -108,7 +108,7 @@ Galuppi - Piano Sonata No. 5 in C Major: I. Andante
 
 https://www.youtube.com/watch?v=5pyhBJzuixM&list=PLa_jXm0rNgr6lb4OPXC0EMh2FtlxbjhrT&index=2&t=0s
 
-Erik Satie - Gymnopedie No 1 (Luv)
+Erik Satie - Gymnopedie No 1, 裸體歌舞 (Luv)
 
 https://www.youtube.com/watch?v=kj_UETbqHuI
 
