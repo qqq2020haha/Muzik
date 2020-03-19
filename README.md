@@ -10,6 +10,8 @@ https://www.youtube.com/watch?v=0BLaLv-jPQU
 
 Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 "Moonlight Sonata" (Luv Plus)
 
+Bagatelle No. 25 in A Minor, WoO 59 "Für Elise" (Luv Plus)
+
 -------------------------------------------------------------------------
 
 ▼TRACK LIST▼
