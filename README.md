@@ -2,6 +2,16 @@
 
 The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert, Handel, Liszt, Haydn, Strauss, Verdi, Brahms, Wagner, Mahler, Rossini, Ravel, Grieg, Dvorák…
 
+Verdi
+
+https://www.youtube.com/watch?v=Bg-An7TQBbI
+
+La Donna E Mobile (Rigoletto)
+
+Dvorák
+
+https://www.youtube.com/watch?v=3nSEMJW7UqE
+
 Wagner
 
 https://www.youtube.com/watch?v=4i0TnNI6U-w
