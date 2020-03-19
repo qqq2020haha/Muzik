@@ -6,13 +6,13 @@
 
    https://www.youtube.com/watch?v=iUYXeZTqM4U
    
-I Giorni
+I Giorni (Luv)
 
 Le Onde
 
 Una Mattina
 
-Nuvole Bianche
+Nuvole Bianche (Luv)
 
 -------------------------------------------------------------------------
 
