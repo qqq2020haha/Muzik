@@ -8,6 +8,23 @@ https://www.youtube.com/watch?v=P8ZHToXlp1o
 
 ▼
 
+-------------------------------------------------------------------------
+
+▼TRACK LIST▼
+
+https://www.youtube.com/watch?v=ZYFWHgKdfY8
+
+Bo's Theme
+
+Autumn Breeze
+
+Wandering
+
+Thoughts (Luv)
+
+Remembrance (Luv)
+
+Horizon
 
 -------------------------------------------------------------------------
 
