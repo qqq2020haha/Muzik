@@ -12,7 +12,7 @@ https://www.youtube.com/watch?v=P8ZHToXlp1o
 
 ▼TRACK LIST▼
 
-Comptine d’un autre été: l’aprés-midi (L)
+Comptine d’un autre été: l’aprés-midi (Luv Plus)
 
 https://www.youtube.com/watch?v=NvryolGa19A
 
