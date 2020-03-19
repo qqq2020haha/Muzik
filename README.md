@@ -10,21 +10,33 @@ https://www.youtube.com/watch?v=Bg-An7TQBbI
 
 La Donna E Mobile (Rigoletto)
 
+Dies Irae (Messa Da Requiem)
+
+--------------------------------------------------------------
+
 Dvorák
 
 https://www.youtube.com/watch?v=3nSEMJW7UqE
+
+--------------------------------------------------------------
 
 Wagner
 
 https://www.youtube.com/watch?v=4i0TnNI6U-w
 
+--------------------------------------------------------------
+
 Rossini
 
 https://www.youtube.com/watch?v=nU_U1NH5QBs
 
+--------------------------------------------------------------
+
 Strauss
 
 https://www.youtube.com/watch?v=d4AmYBhGBfM
+
+--------------------------------------------------------------
 
 Schubert
 
