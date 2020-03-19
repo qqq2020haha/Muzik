@@ -12,6 +12,8 @@ La Donna E Mobile (Rigoletto)
 
 Dies Irae (Messa Da Requiem)
 
+Questa O Quella (Rigoletto)
+
 --------------------------------------------------------------
 
 Dvorák
