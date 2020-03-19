@@ -2,6 +2,18 @@
 
 The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert, Handel, Liszt, Haydn, Strauss, Verdi, Brahms, Wagner, Mahler, Rossini, Ravel, Grieg, Dvorák…
 
+Wagner
+
+https://www.youtube.com/watch?v=4i0TnNI6U-w
+
+Rossini
+
+https://www.youtube.com/watch?v=nU_U1NH5QBs
+
+Strauss
+
+https://www.youtube.com/watch?v=d4AmYBhGBfM
+
 Schubert
 
 https://www.youtube.com/watch?v=P8ZHToXlp1o
