@@ -20,7 +20,7 @@ Autumn Breeze
 
 Wandering
 
-Thoughts (Luv)
+Thoughts (Luv Plus)
 
 Remembrance (Luv)
 
