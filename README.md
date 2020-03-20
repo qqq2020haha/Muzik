@@ -18,7 +18,7 @@ Peer Gynt, Suite №1, Opus 46: III. Anitra's Dance (Luv Plus)
 
 Concerto for Piano and Orchestra in A Minor, Opus 16: III. Allegro moderato molto e marcato (Luv Plus+)
 
-Lyric Pieces, Opus 47: number 7, Elegy (Luv Plus+)
+Lyric Pieces, Opus 47: number 7, Elegy (Luv Plus++)
 
 Lyric Pieces, Opus 54: number 2, the Norwegian peasant march
 
