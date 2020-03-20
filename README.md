@@ -4,7 +4,7 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 --------------------------------------------------------------
 
-Handel
+Haydn
 
 --------------------------------------------------------------
 
