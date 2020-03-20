@@ -4,7 +4,21 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 --------------------------------------------------------------
 
-Liszt (L)
+Handel
+
+--------------------------------------------------------------
+
+Handel
+
+--------------------------------------------------------------
+
+Vivaldi (Luv Plus)
+
+https://www.youtube.com/watch?v=O6NRLYUThrY
+
+--------------------------------------------------------------
+
+Liszt (Luv)
 
 https://www.youtube.com/watch?v=7bOlqN1qbDw
 
