@@ -12,6 +12,8 @@ Peer Gynt, Suite №1, Opus 46: I. Morning Mood
 
 Peer Gynt, Suite №2, Opus 55: IV. Solveig's Song
 
+Lyric Pieces, Opus 43: № 1, Butterfly
+
 ...
 
 --------------------------------------------------------------
