@@ -24,6 +24,8 @@ Lyric Pieces, Opus 54: number 2, the Norwegian peasant march
 
 6 songs, Opus 48: number 5, Rose Time 
 
+Lyric Pieces, Opus 38: № 1, Lullaby (Luv Pls+)
+
 ...
 
 --------------------------------------------------------------
