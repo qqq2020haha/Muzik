@@ -4,6 +4,12 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 --------------------------------------------------------------
 
+Liszt
+
+https://www.youtube.com/watch?v=7bOlqN1qbDw
+
+--------------------------------------------------------------
+
 Verdi
 
 https://www.youtube.com/watch?v=Bg-An7TQBbI
