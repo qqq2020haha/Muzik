@@ -20,6 +20,8 @@ Concerto for Piano and Orchestra in A Minor, Opus 16: III. Allegro moderato molt
 
 Lyric Pieces, Opus 47: number 7, Elegy (Luv Plus+)
 
+Lyric Pieces, Opus 54: number 2, the Norwegian peasant march 
+
 ...
 
 --------------------------------------------------------------
