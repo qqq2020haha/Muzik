@@ -1,6 +1,10 @@
-# Muzik (60)
+# Muzik (80)
 
 The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert, Handel, Liszt, Haydn, Strauss, Verdi, Brahms, Wagner, Mahler, Rossini, Ravel, Grieg, Dvorák…
+
+--------------------------------------------------------------
+
+Ravel, Grieg
 
 --------------------------------------------------------------
 
@@ -69,51 +73,6 @@ Liszt (Luv)
 
 https://www.youtube.com/watch?v=7bOlqN1qbDw
 
---------------------------------------------------------------
-
-Verdi
-
-https://www.youtube.com/watch?v=Bg-An7TQBbI
-
-La Donna E Mobile (Rigoletto)
-
-Dies Irae (Messa Da Requiem)
-
-Questa O Quella (Rigoletto)
-
-Lo Sguardo Avea Degli Angeli (I Masnadieri; soprano: Montserrat Caballé)
-
---------------------------------------------------------------
-
-Dvorák
-
-https://www.youtube.com/watch?v=3nSEMJW7UqE
-
---------------------------------------------------------------
-
-Wagner
-
-https://www.youtube.com/watch?v=4i0TnNI6U-w
-
---------------------------------------------------------------
-
-Rossini
-
-https://www.youtube.com/watch?v=nU_U1NH5QBs
-
---------------------------------------------------------------
-
-Strauss
-
-https://www.youtube.com/watch?v=d4AmYBhGBfM
-
---------------------------------------------------------------
-
-Schubert
-
-https://www.youtube.com/watch?v=P8ZHToXlp1o
-
-Piano Sonata No. 13 in A Major, Op. 120, D. 664 --- Andante
 
 -------------------------------------------------------------------------
 
@@ -277,17 +236,65 @@ https://www.youtube.com/watch?v=zINZ72zW5P4
 
 -------------------------------------------------------------------------
 
+Erik Satie
+
 https://www.youtube.com/watch?v=5pyhBJzuixM&list=PLa_jXm0rNgr6lb4OPXC0EMh2FtlxbjhrT&index=2&t=0s
 
-Erik Satie - Gymnopedie No 1, 裸體歌舞 (Luv)
+ Gymnopedie No 1, 裸體歌舞 (Luv)
 
 https://www.youtube.com/watch?v=kj_UETbqHuI
 
-Erik Satie - Gnossienne nº 1 (Luv)
+Gnossienne nº 1 (Luv)
 
-Erik Satie - Gnosienne nº 3 (LuvPlus)
+Gnosienne nº 3 (LuvPlus)
 
-Erik Satie - Six gnossiennes: Gnosienne 5, modéré
+Six gnossiennes: Gnosienne 5, modéré
+
+--------------------------------------------------------------
+
+Verdi
+
+https://www.youtube.com/watch?v=Bg-An7TQBbI
+
+La Donna E Mobile (Rigoletto)
+
+Dies Irae (Messa Da Requiem)
+
+Questa O Quella (Rigoletto)
+
+Lo Sguardo Avea Degli Angeli (I Masnadieri; soprano: Montserrat Caballé)
+
+--------------------------------------------------------------
+
+Dvorák
+
+https://www.youtube.com/watch?v=3nSEMJW7UqE
+
+--------------------------------------------------------------
+
+Wagner
+
+https://www.youtube.com/watch?v=4i0TnNI6U-w
+
+--------------------------------------------------------------
+
+Rossini
+
+https://www.youtube.com/watch?v=nU_U1NH5QBs
+
+--------------------------------------------------------------
+
+Strauss
+
+https://www.youtube.com/watch?v=d4AmYBhGBfM
+
+--------------------------------------------------------------
+
+Schubert
+
+https://www.youtube.com/watch?v=P8ZHToXlp1o
+
+Piano Sonata No. 13 in A Major, Op. 120, D. 664 --- Andante
 
 -------------------------------------------------------------------------
 
