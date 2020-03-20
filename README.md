@@ -8,7 +8,38 @@ Haydn
 
 --------------------------------------------------------------
 
-Handel
+Handel (Luv)
+
+https://www.youtube.com/watch?v=joVkx20oVIg
+
+No. 1, in G Major
+
+No. 2, in F Major
+
+No. 3, in E Major
+
+No. 4, in A Minor
+
+Water Music
+Suite No. 1, in F Major
+
+Suite No. 2, in D Major
+
+Suite No. 3, in G Major
+
+Rinaldo, HWV 7: Act II "Lascia Ch'io Pianga"
+
+Serse, HWV 40: Act I "Ombra Mai Fu" 
+
+Messiah, HWV 56: Chorus "Hallelujah" 
+
+Messiah, HWV 56: Chorus "For unto us a Child is Born"
+
+Zadok the Priest, HWV 258 ( Coronation anthem )
+
+Suite in D Minor, HWV 437: IV. Sarabande
+
+Samson, HWV 57: Act III "Let their celestial concerts
 
 --------------------------------------------------------------
 
