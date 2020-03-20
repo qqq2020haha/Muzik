@@ -4,11 +4,13 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 --------------------------------------------------------------
 
-Grieg (Luv Plus)
+Edward Grieg (Luv Plus)
 
 https://www.youtube.com/watch?v=R_5AwR27wj4
 
 Peer Gynt, Suite №1, Opus 46: I. Morning Mood
+
+Peer Gynt, Suite №2, Opus 55: IV. Solveig's Song
 
 ...
 
