@@ -4,7 +4,7 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 --------------------------------------------------------------
 
-Liszt
+Liszt (L)
 
 https://www.youtube.com/watch?v=7bOlqN1qbDw
 
