@@ -1,10 +1,10 @@
-# Muzik (82)
+# Muzik (99)
 
 The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert, Handel, Liszt, Haydn, Strauss, Verdi, Brahms, Wagner, Mahler, Rossini, Ravel, Grieg, Dvorák…
 
 --------------------------------------------------------------
 
-Edward Grieg (Luv Plus)
+# Edward Grieg (Luv Plus)
 
 https://www.youtube.com/watch?v=R_5AwR27wj4
 
@@ -59,7 +59,7 @@ Minuetto
 
 --------------------------------------------------------------
 
-Handel (Luv)
+# Handel (Luv)
 
 https://www.youtube.com/watch?v=joVkx20oVIg
 
@@ -94,7 +94,7 @@ Samson, HWV 57: Act III "Let their celestial concerts
 
 --------------------------------------------------------------
 
-Vivaldi (Luv Plus)
+# Vivaldi (Luv Plus)
 
 https://www.youtube.com/watch?v=O6NRLYUThrY
 
@@ -109,7 +109,7 @@ https://www.youtube.com/watch?v=7bOlqN1qbDw
 
 -------------------------------------------------------------------------
 
-Beethoven
+# Beethoven
 
 https://www.youtube.com/watch?v=0BLaLv-jPQU
 
@@ -121,15 +121,11 @@ Bagatelle No. 25 in A Minor, WoO 59 "Für Elise" (Luv Plus)
 
 -------------------------------------------------------------------------
 
-▼TRACK LIST▼
+# ▼TRACK LIST▼
 
 Comptine d’un autre été: l’aprés-midi (Luv Plus)
 
 https://www.youtube.com/watch?v=NvryolGa19A
-
--------------------------------------------------------------------------
-
-▼TRACK LIST▼
 
 https://www.youtube.com/watch?v=ZYFWHgKdfY8
 
@@ -145,11 +141,7 @@ Remembrance (Luv)
 
 Horizon
 
--------------------------------------------------------------------------
-
-▼ TRACKLIST ▼
-
-   https://www.youtube.com/watch?v=iUYXeZTqM4U
+https://www.youtube.com/watch?v=iUYXeZTqM4U
    
 I Giorni (Luv)
 
@@ -160,6 +152,7 @@ Una Mattina
 Nuvole Bianche (Luv)
 
 -------------------------------------------------------------------------
+Bach
 
 Bach: Notebook for Anna Magdalena, Minuet in G major, BWV Ahn. 114
 
@@ -178,10 +171,13 @@ Bach: Cantata BWV 147: Jesu, Joy of Man's Desiring
 Bach: Cello Suite No. 4 in E-flat major, BWV 1010: Courante
 
 -------------------------------------------------------------------------
+Mendelssohn
 
 Mendelssohn: Violin Concerto in E minor, Op. 64 - 2. Andante for 7 min
 
 -------------------------------------------------------------------------
+
+# Brahms
 
 https://www.youtube.com/watch?v=3YUsgfC0t5g
 
@@ -193,6 +189,8 @@ Brahms: Violin Concerto in D major, Op. 77 - 3. Allegro giocoso, ma non troppo v
 
 -------------------------------------------------------------------------
 
+# Lang Lang
+
 Mozart - Piano Sonata No. 5 in G major, K. 283 - 2. Andante
 
 https://www.youtube.com/watch?v=xBE0u8oYqsY
@@ -200,6 +198,8 @@ https://www.youtube.com/watch?v=xBE0u8oYqsY
 Mozart - Piano Sonata No. 9 in D major, K. 311 - 2. Andantino con espressione
 
 -------------------------------------------------------------------------
+
+# Debussy
 
 Debussy - Suite Bergamasque, L. 75: III. Clair de Lune (Luv)
 
@@ -223,6 +223,8 @@ Debussy, Images , L. 110 - No. 1 Reflections in the Water
 
 -------------------------------------------------------------------------
 
+# Chopin
+
 Chopin - Nocturne in E-flat major Op. 9 No. 2 (Luv Plus)
 
 https://www.youtube.com/watch?v=9E6b3swbnWg&list=TLPQMTcwMzIwMjBLwE0Zce-8Yw&index=2
@@ -244,6 +246,7 @@ Chopin - Douze Etudes Op. 25: No. 1 "Aeolian Harp"
 Chopin - Nocturne in F# major Op. 15 No. 2
 
 -------------------------------------------------------------------------
+# Faulkner
 
 Faulkner - Daydreaming (Luv P)
 
@@ -252,6 +255,8 @@ https://www.youtube.com/watch?v=1kfNVsc-8Kw&list=TLPQMTcwMzIwMjBLwE0Zce-8Yw&inde
 Yiruma - River Flows in You 
 
 -------------------------------------------------------------------------
+
+# Tchaikovsky
 
 https://www.youtube.com/watch?v=XOVndSdAq2Q
 
@@ -269,7 +274,7 @@ https://www.youtube.com/watch?v=zINZ72zW5P4
 
 -------------------------------------------------------------------------
 
-Erik Satie
+# Erik Satie
 
 https://www.youtube.com/watch?v=5pyhBJzuixM&list=PLa_jXm0rNgr6lb4OPXC0EMh2FtlxbjhrT&index=2&t=0s
 
