@@ -8,11 +8,13 @@ Edward Grieg (Luv Plus)
 
 https://www.youtube.com/watch?v=R_5AwR27wj4
 
-Peer Gynt, Suite №1, Opus 46: I. Morning Mood
+Peer Gynt, Suite №1, Opus 46: I. Morning Mood (Luv Plus)
 
-Peer Gynt, Suite №2, Opus 55: IV. Solveig's Song
+Peer Gynt, Suite №2, Opus 55: IV. Solveig's Song (Luv Plus)
 
 Lyric Pieces, Opus 43: № 1, Butterfly
+
+Peer Gynt, Suite №1, Opus 46: III. Anitra's Dance (Luv Plus)
 
 ...
 
