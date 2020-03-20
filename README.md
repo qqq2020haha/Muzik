@@ -4,7 +4,21 @@ The very best of Mozart, Beethoven, Bach, Chopin, Tchaikovsky, Vivaldi, Schubert
 
 --------------------------------------------------------------
 
-Haydn
+Haydn (Luv)
+
+https://www.youtube.com/watch?v=EmZF3kBZQ6E
+
+Symphony no. 45 in F# min (Farewell)
+
+Symphony no. 46 in B major 
+
+Symphony no. 48 in C major (Maria Theresia)
+
+Symphony no. 49 in F minor (La Passione)
+
+String Quartet No. 3 in C, Op. 76 (Emperor)
+
+Minuetto
 
 --------------------------------------------------------------
 
@@ -46,6 +60,8 @@ Samson, HWV 57: Act III "Let their celestial concerts
 Vivaldi (Luv Plus)
 
 https://www.youtube.com/watch?v=O6NRLYUThrY
+
+Four Seasons
 
 --------------------------------------------------------------
 
